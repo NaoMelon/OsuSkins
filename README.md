@@ -11,8 +11,8 @@ some cool Osu! skins i'd like to share
 ![](https://i.imgur.com/pMrjK2L.png) 
 
 # [Angelsim]()
-![]() 
-![https://i.imgur.com/lsQZSsb.png]() 
+![](https://i.imgur.com/d1TpniM.png) 
+![](https://i.imgur.com/lsQZSsb.png) 
 
 # []()
 ![]() 
