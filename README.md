@@ -18,13 +18,8 @@ some cool Osu! skins i'd like to share
 ![](https://i.imgur.com/mRNexg3.png) 
 
 # [BeasttrollMC Old]() 
-<details>
-<summary>
-<a class="btnfire small stroke"><em class="fas fa-chevron-circle-down"></em>&nbsp;&nbsp;Screenshot</a>    
-</summary>
 ![](https://i.imgur.com/S7kIBSm.png) 
 
-</details>
 # []() 
 ![]() 
 
