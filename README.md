@@ -15,19 +15,19 @@ some cool Osu! skins i'd like to share
 ![](https://i.imgur.com/HFWqNgP.jpg) 
 
 # [New Noel](https://s.put.re/NYSWvkiV.osk)
-![](https://i.imgur.com/mRNexg3.png) 
+![](https://i.imgur.com/YmnRhJ4.jpg) 
 
 # [BeasttrollMC Old]() 
-![](https://i.imgur.com/S7kIBSm.png) 
+![](https://i.imgur.com/I27BTl1.jpg) 
 
 # [Abyssal](https://s.put.re/jrfqthz7.osk) 
 ![](https://i.imgur.com/EfsUVfO.jpg) 
 
-# []() 
-![]() 
+# [Cookiezi 13]() 
+![](https://i.imgur.com/CgNYXJ3.jpg) 
 
-# []() 
-![]() 
+# [Cookiezi 17]() 
+![](https://i.imgur.com/ckl9RXs.jpg) 
 
 # []() 
 ![]() 
